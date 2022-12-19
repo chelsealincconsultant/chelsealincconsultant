@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @chelsealincconsultant
-- 👀 I’m interested in recruiting too tech talent
+- 👀 I’m interested in recruiting top tech talent
 - 🌱 I’m currently learning how to successfully recruit on Github
 - 💞️ I’m looking to collaborate on GitHub 
 - 📫 How to reach me on LinkedIn or pop me an email!
